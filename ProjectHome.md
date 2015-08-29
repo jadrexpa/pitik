@@ -1,0 +1,1 @@
+Hanya pitik yang mengerti.
